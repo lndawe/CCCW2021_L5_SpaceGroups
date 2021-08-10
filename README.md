@@ -1,1 +1,0 @@
-# CCCW2021_L5_SpaceGroups
